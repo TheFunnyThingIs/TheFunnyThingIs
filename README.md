@@ -4,7 +4,7 @@
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1489045301498089602/tumblr_97bae525b65744f19a445549918ab846_e9278e5f_540.webp?ex=69fe7301&amp;is=69fd2181&amp;hm=b0a38817da0303ae0b4b65cd60eeab575a132ad549fb8f88e97b97be854a274c&amp;=&amp;animated=true" alt="Image"/>
 
 <p align="center"> $\text{\color{#3368bd} i prefer devyn  for closer ppl though !!}$
-<p align="center"> $\text{\color{#3368bd} alter in a system ! introject . . roles to be added !}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20498126-17e3-4a9b-9871-b3588a171f01" />
+<p align="center"> $\text{\color{#3368bd} alter in a system ! introject . . daydream holder}$ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/20498126-17e3-4a9b-9871-b3588a171f01" />
 <p align="center"> $\text{\color{#3368bd} my favorite color is  blue !! even though source clothes  are mainly red ..}$
 <p align="center"> <img src="https://media.discordapp.net/attachments/1148999953717399584/1489045302202597387/tumblr_ca67f7d16eaa243df3ee1fdc890a4c41_af5c8346_1280.png?ex=69fe7301&amp;is=69fd2181&amp;hm=2f69f4409e823f0c2875d0efb5ac5f15eb3f2f075759e46a0a99c496180968f5&amp;=&amp;format=webp&amp;quality=lossless&amp;width=495&amp;height=457" alt="Image"/>
 
